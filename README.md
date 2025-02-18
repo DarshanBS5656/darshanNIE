@@ -1,3 +1,3 @@
 # darshanNIE
 my first repository
-i will make mind to listen
+i will make my mind to listen,
